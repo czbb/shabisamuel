@@ -15,10 +15,6 @@ f
 afa
 jfas
 f
-ajfj
-afj
-asfjk
-asf
 asfk
 k
 afk
