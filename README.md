@@ -8,13 +8,4 @@ asd
 ada
 dsadasd
 asdda
-jkdas
-jk
 
-k
-  
-  hadH
-  h
-  da
-  had
-  h 
