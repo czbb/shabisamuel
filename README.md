@@ -14,3 +14,16 @@ jk
 k
 afk
 afk
+
+AHAHDS
+HAShdA
+DAhhahda
+HDA
+h
+  adhaHDA
+  
+  hadH
+  h
+  da
+  had
+  h 
