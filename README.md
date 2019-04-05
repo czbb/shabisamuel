@@ -12,11 +12,6 @@ jkdas
 jk
 
 k
-afk
-afk
-
-AHAHDS
-  adhaHDA
   
   hadH
   h
