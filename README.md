@@ -16,10 +16,6 @@ afk
 afk
 
 AHAHDS
-HAShdA
-DAhhahda
-HDA
-h
   adhaHDA
   
   hadH
