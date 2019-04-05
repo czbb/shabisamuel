@@ -13,24 +13,7 @@ ffa
 asfasfhiuahsaf
 asf
 safsa
-f
-jf
-asjf
-s
 
-asfasfhiuahsaf
-asf
-safsa
-f
-jf
-asjf
-s
-
-asfasfhiuahsaf
-asf
-safsa
-f
-jf
 asjf
 
 asf
